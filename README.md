@@ -38,5 +38,3 @@ Creative satirist & illustrator
 
 🕊️ *The emptier the throne, the louder it roars.*
 
-Souhaites-tu une version modifiée, par exemple avec un lien vers ton Instagram ou un slogan différent ?
-
